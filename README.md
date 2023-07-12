@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Amin
+- 👀 I’m interested in Programing
+- 🌱 I’m currently learning Networking...
+- 📫 How to reach me a.azmoodeh@mail.utoronto.ca
+- 📫 Either you can contact me through Telegram @Trueness00
